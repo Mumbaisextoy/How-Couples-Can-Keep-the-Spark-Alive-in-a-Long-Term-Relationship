@@ -34,4 +34,4 @@ Not every attempt will be perfect, and that is fine. Laughing together, being pa
 
 ## Ready to bring something new into your relationship?
 
-You and your partner deserve time that feels special. If you live in Poonkunnam, Ayyanthole, Ollur or Guruvayur Road, you can order a **sex toy in Thrissur** with plain packaging, private billing and quick doorstep delivery. Explore the full collection at [**mumbaisextoy.in**](https://www.mumbaisextoy.com) and choose what suits you both.
+You and your partner deserve time that feels special. If you live in Poonkunnam, Ayyanthole, Ollur or Guruvayur Road, you can order a **sex toy in Thrissur** with plain packaging, private billing and quick doorstep delivery. Explore the full collection at [**mumbaisextoy.com**](https://www.mumbaisextoy.com) and choose what suits you both.
